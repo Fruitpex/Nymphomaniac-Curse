@@ -1,2 +1,0 @@
-# Nymphomaniac-Curse
-Curse
